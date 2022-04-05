@@ -4,3 +4,5 @@ hi
 hi
 boom 
 /n bye
+
+KERA MAMO KE KOVOR
